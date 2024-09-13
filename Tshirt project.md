@@ -1,2 +1,0 @@
-Ideation ://
-Frog idea
