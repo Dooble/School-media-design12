@@ -53,3 +53,6 @@ https://en.wikipedia.org/wiki/Climate_of_Paris#:~:text=Paris%20has%20a%20typical
 https://www.google.com/search?q=paris+climate&ie=UTF-8&oe=UTF-8&hl=en-jp&client=safari
 https://www.ncei.noaa.gov/node/6696
 https://www.auarts.ca/future-students/how-to-apply/how-to-apply-for-a-bachelors-degree/portfolio-requirements
+
+
+
